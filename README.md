@@ -34,3 +34,15 @@
 }
 ```
 [^1]: The teenagers are connected with invisible red strings in their pinky. This symbolizes their destiny.
+<dl>
+  <dt>Kimi No Nawa</dt>
+  <dd>Japanese title of the moive.</dd>
+  <dt> Mitsuha</dt>
+  <dd>A Japanese word for “Angel”.</dd>
+  <dt> Kataware-doki</dt>
+  <dd>It is a rice-based alcohol in Japan.</dd>
+</dl>
+~~They did not see each other again.~~ They met, but not recognized each other in the end. Hence, they felt that they met before, and their strings are reestablished.
+This is a top tier anime movie! :heart:
+This made me :cry:  the whole night
+You need to ==watch this movie== , because if you don’t, you are missing something in your life.
