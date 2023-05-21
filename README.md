@@ -33,4 +33,4 @@
   "Date released": August 26 2016
 }
 ```
-
+[^1]: The teenagers are connected with invisible red strings in their pinky. This symbolizes their destiny.
